@@ -31,3 +31,7 @@
   * **視覺惡搞**：封面是一隻灰色的貓（象徵 Gray），眼神卻帶點戲謔，把貓影子拉成 50 層，最後一層影子裡出現「Ray」的名字。
   * **哲學式解釋**：從「灰色地帶」切入，五十種灰＝五十種人生光譜，Ray 就是介於光與影之間的觀察者。
 ```
+
+##
+
+I thought they didnt write 911, mabye i wasnt paying enough attention(the person didn't edit when i wasn't lookinging right?).
